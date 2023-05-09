@@ -3,7 +3,7 @@
 🌟 🌟 🌟 🌟 🌟 🌟 🌟 🌟 🌟 🌟 🌟🌟 🌟 
 ➡️ ➡️  DISCORD TOKEN GEN
 
-DISCORD SUNUCUMUZA KATILIN:
+KODU DISCORD SUNUCUMUZDA BULABİLİRSİNİZ:
 https://discord.gg/deyS7ZNzWE
 
 👉 Kullanım;
